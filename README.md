@@ -6,3 +6,4 @@ Dzieki kolego
 Chyba ty
 owszem, ja 
 kochany kolego
+sus
