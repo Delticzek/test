@@ -4,3 +4,5 @@ FoRtNiTe
 miłej gry w lige towarzyszu
 Dzieki kolego
 Chyba ty
+owszem, ja 
+kochany kolego
