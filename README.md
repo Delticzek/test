@@ -7,3 +7,4 @@ Chyba ty
 owszem, ja 
 kochany kolego
 sus
+ඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞඞ
